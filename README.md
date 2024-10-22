@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Helena011
+- she\ her
+- 👀 I’m interested in games and tv shows, movies
+- Cat Lover ^v^ <3
